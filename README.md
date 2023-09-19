@@ -1,1 +1,0 @@
-# AtividadeInformatica3
